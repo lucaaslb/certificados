@@ -1,0 +1,1 @@
+![Certificado parcial, antes da conclusão da graduação](UAM-ANALISTA-DE-SISTEMAS.jpg)
